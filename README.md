@@ -1,7 +1,9 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=y091vl2c40oyrovu7v4r6j298&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=e93faa&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=y091vl2c40oyrovu7v4r6j298&redirect=true)
+old unfinshed / unused graphics, can you guess my favorite color!
 
-![Tumblr_l_132266409342806](https://github.com/user-attachments/assets/22c731f5-f0b2-4f01-a083-2ec646ff3ce1)
-![Gbxz_6MaIAAm-XJ](https://github.com/user-attachments/assets/648330e5-ce52-445b-86d9-3c1e89e7e880)
-![1000049394](https://github.com/user-attachments/assets/a7b1e426-be9f-48c8-ab5d-f35bb4442c1f)
+![Untitled267_20250426162511](https://github.com/user-attachments/assets/09f9bbeb-de1c-4348-a508-85dd7c73e1d4)
 
-> look at wife. . . so stupid.... so soft.... so cute...
+![Your paragraph text (5)](https://github.com/user-attachments/assets/f7332e7d-295c-4737-8af5-39344ba40626)
+
+![GIF_20250209_164932_206](https://github.com/user-attachments/assets/d3b1da61-f465-46e5-b100-e2351460e4ab)
+
+![GIF_20250209_164952_741](https://github.com/user-attachments/assets/d21e9dae-69f2-43f5-9c68-3ad4a3b06cf9)
